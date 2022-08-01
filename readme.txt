@@ -1,1 +1,1 @@
-Summer is Hot, Winter is Cold.
+Summer is Hot, Winter is Cold. In fall we have pretty leaves
